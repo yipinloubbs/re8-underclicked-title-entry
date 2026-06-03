@@ -8,7 +8,7 @@
 - [淫奴小说目录](https://re8.help/novel/novel-94990b84-2)：按书名进入章节列表。
 - [男奴小说目录](https://re8.help/novel/nan-ffb173)：短书名查询可从目录页确认章节。
 - [警察队长赵刚小说目录](https://re8.help/novel/chang-fded70)：用于承接完整书名查询。
-- [青年的调教小说目录](https://re8.lat/novel/qing-nian-de)：当前规范入口在热吧甜文分站。
+- [青年的调教小说目录](https://re8.help/novel/qing-nian-de)：当前规范入口在热吧书阁。
 - [校草男友的秘密小说目录](https://re8.lat/novel/hei-wang-xiao-cao-nan-you-de-1-9)：适合从目录页继续阅读。
 
 ## 分站入口
